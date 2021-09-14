@@ -112,8 +112,13 @@ Contacting Us
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
 Music Player Eco
+
 LECONGTY
+
 THO XUAN, THANH HOA, 10000
+
 VIETNAM
+
 phongtx89@gmail.com
+
 Last Edited on 2021-09-14
